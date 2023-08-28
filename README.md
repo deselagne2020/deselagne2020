@@ -1,6 +1,6 @@
  - 👋 Hi, I’m @deselagne2020
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...hwrthrthtr
 - 💞️ I’m looking to collaborate on ...yit jh
 - 📫 How to reach me ...43serysreyjcgxfk utyhtreje65
 56363442kyuet je tykeke t geerrtu
