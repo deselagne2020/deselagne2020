@@ -1,7 +1,7 @@
 w - 👋 Hi, I’m @deselagne2020
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...hwrthrthtr
-- 💞️ I’m looking to collaborate on ...yit jherger
+- 💞️ I’m looking to collaborate on ...yit jherger ayer
 - 📫 How to reach me ...43serysreyjcgxfk utyhtreje65ghfghfghfhfhhfhtrty54ujc 6456tryrt
 56363442kyuet je tykeke t geerrtu
 <!---34htyjet jygrgwe
